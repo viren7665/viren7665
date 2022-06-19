@@ -1,2 +1,2 @@
-- 👋 Hey , I am Viren
+- 👋 Hey , I am Viren Rathod. Currently I'm Pursuing B.E. in Computer Engineering at Government Engineering College, Bhavnagar.
 - 📫 Contact :- virenrth@hotmail.com
